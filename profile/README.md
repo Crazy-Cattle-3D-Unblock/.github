@@ -1,4 +1,4 @@
-## Play Crazy Cattle 3D Online – The Wild Sheep Battle Royale!
+# Play Crazy Cattle 3D Online – The Wild Sheep Battle Royale!
 
 **Crazy Cattle 3D** is a hilarious physics-based battle royale where you control an explosive sheep and headbutt your way to victory. Now you can play **Crazy Cattle 3D online instantly**—no download required!
 
