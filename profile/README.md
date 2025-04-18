@@ -3,7 +3,7 @@
 **Crazy Cattle 3D** is a hilarious physics-based battle royale where you control an explosive sheep and headbutt your way to victory. Now you can play **Crazy Cattle 3D online instantly**—no download required!
 
 
-**[Play Crazy Cattle 3D Online](https://sprunkiretake.net/crazy-cattle-3d)**
+**[Play Crazy Cattle 3D Online](https://sprunkiretake.net/sprunki-game/crazy-cattle-3d)**
 
 ![Play Crazy Cattle 3D Online](https://play.sprunkiretake.net/crazy-cattle-3d/CrazyCattle3D.png)
 
@@ -49,7 +49,7 @@ No installation required — just unzip and play.
 
 Click the button below to launch the game instantly. No downloads, no setup – just pure **Crazy Cattle 3D** fun!
 
- **[Play Crazy Cattle 3D Online](https://sprunkiretake.net/crazy-cattle-3d)**
+ **[Play Crazy Cattle 3D Online](https://sprunkiretake.net/sprunki-game/crazy-cattle-3d)**
 
 ---
 
@@ -71,4 +71,4 @@ A: Multiplayer support is available in online lobbies or locally.
 
 Whether you're on a quick break or deep into competition, **Crazy Cattle 3D** delivers chaotic fun for everyone. Jump in, headbutt hard, and become the last sheep standing!
 
-**[Start Playing Crazy Cattle 3D Online](https://sprunkiretake.net/crazy-cattle-3d)**  
+**[Start Playing Crazy Cattle 3D Online](https://sprunkiretake.net/sprunki-game/crazy-cattle-3d)**  
